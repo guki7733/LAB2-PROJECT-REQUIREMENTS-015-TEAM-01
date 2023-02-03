@@ -1,4 +1,4 @@
 # LAB2-PROJECT-REQUIREMENTS-015-TEAM-01
 Ryan Garrett: Garrett-78, 
 Elliot, 
-Gunhi: guki7733
+Gunhi Kim: guki7733
